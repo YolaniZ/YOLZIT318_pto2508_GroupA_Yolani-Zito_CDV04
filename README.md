@@ -32,7 +32,7 @@ Vulindlela is a dynamic South African fintech startup focused on delivering secu
 
 ## 📄 Cover Letter Link
 
-👉 
+👉 https://docs.google.com/document/d/1uJ97Aym2qjsd-XsqvCho86Dlpf2Ou-TMfvz89kfmYjA/edit?tab=t.0#heading=h.9n1aby3g4cck
 
 ## ✅ Submission Guidelines (Completed)
 
